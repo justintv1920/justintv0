@@ -1,4 +1,4 @@
-#  ⚽ Gaziantep FK 🆚 Beşiktaş Canlı Maç İzle | JustinTV | Kesintisiz Yayın 🎥🏆(https://tinyurl.com/3fnm62ak)
+#  [⚽ Gaziantep FK 🆚 Beşiktaş Canlı Maç İzle | JustinTV | Kesintisiz Yayın 🎥🏆](https://tinyurl.com/3fnm62ak)
 📲 Bizi Sosyal Medyada Takip Edin! 🔗
 
 <h3><a href="https://tinyurl.com/3fnm62ak">📢 Telegram Kanalımız: 👉 Katıl ve Canlı Maçları Kaçırma!</a></h3>
